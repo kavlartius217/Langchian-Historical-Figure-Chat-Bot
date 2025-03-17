@@ -1,0 +1,1 @@
+This bot mimics the nuances, dialects and the way of speaking of historical figures
